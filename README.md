@@ -1,1 +1,1 @@
-# Projekt-ko-cowy
+# Projekt
